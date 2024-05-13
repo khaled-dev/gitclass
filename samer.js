@@ -1,0 +1,9 @@
+tsetse
+t
+teste
+tessett
+tetst
+essetset
+e
+tse
+tsetse
