@@ -1,4 +1,7 @@
-hello world, wleeo rold
+hello world, hello world 2
 
-i hate bitch 
+i love fucking bitch
+i love you bitch
+hello world tani 
+i hate bitch
 
